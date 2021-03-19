@@ -1,1 +1,1 @@
-Ahojte
+Ahojte, všetci
